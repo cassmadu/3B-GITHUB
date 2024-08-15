@@ -7,3 +7,5 @@
 ### Você pode emtrar em contato comigo
 
 mariaeduardacassiano00@gmail.com
+
+![](https://media1.tenor.com/m/ySJOxAbdkeUAAAAC/bb-bbgang.gif)
